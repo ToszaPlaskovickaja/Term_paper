@@ -1,1 +1,0 @@
-# Term_paper
